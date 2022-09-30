@@ -1,6 +1,6 @@
 Read Before INT!
 
-【ᴍɪᴋᴇʏ / ʟᴇᴏ ʜᴇ/ʜɪᴍ】yup i'm trans
+【ᴍɪᴋᴇʏ/ʟᴇᴏ ʜᴇ/ʜɪᴍ】
 
 Do not copy my style or take inspo pls :D
 
