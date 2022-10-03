@@ -6,7 +6,8 @@ Do not copy my style or take inspo pls :D
 
 ₊˚ ‿︵‿︵‿︵୨♡ৎ‿︵‿︵‿︵‿ ˚₊
 
-![193152690-38a6aaa5-5b04-4a0b-b3ae-c0b8f98a060d](https://user-images.githubusercontent.com/114703263/193251652-ac62c6aa-7d8e-4d72-9c48-f34b82095e43.jpg)
+![image](https://user-images.githubusercontent.com/114703263/193553335-4d298e76-26af-4f4e-b04e-eb3e63da85a0.png)
+
 
 Hai there ɪ ᴀᴍ ᴀ ᴍɪɴᴏʀ ᴀɴᴅ ɪ ᴜsᴜᴀʟʟʏ ᴅʀᴀᴡ ɪɴ ᴍʏ ғʀᴇᴇ ᴛɪᴍᴇ
 
@@ -34,8 +35,8 @@ sʜɪᴘ ᴅʀᴇᴀᴍɴᴏᴛғᴏᴜɴᴅ
 
 ₊˚ ‿︵‿︵‿︵୨♡ৎ‿︵‿︵‿︵‿ ˚₊
 
+![s-l1600](https://user-images.githubusercontent.com/114703263/193552490-5f4a5453-60c8-429d-aaa5-4129ee14ad88.jpg)
 
-![193152755-90a24a2f-e465-4525-848b-cb3286d1fef0](https://user-images.githubusercontent.com/114703263/193251698-33757479-68d3-468e-8fd4-0ae6ec19a658.jpg)
 
 Fandoms I'm in
 
