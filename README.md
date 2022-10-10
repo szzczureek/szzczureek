@@ -4,8 +4,9 @@ Read Before INT! ![image](https://user-images.githubusercontent.com/114703263/19
 
 
 
+![image](https://user-images.githubusercontent.com/114703263/194954570-db827bf5-3bcc-496b-9c07-9f6795947796.png)
 Do not copy my style or take inspo pls :D
-
+╚═══════════════════════════════════════════════════════════════════════════════════════╝
 
 
 ![image](https://user-images.githubusercontent.com/114703263/194950609-c58fb3d0-2043-4b51-ba19-e682287b2bcd.png)
@@ -13,7 +14,8 @@ Do not copy my style or take inspo pls :D
 
 Hi there ɪ ᴀᴍ ᴀ ᴍɪɴᴏʀ ᴀɴᴅ ɪ ᴜsᴜᴀʟʟʏ ᴅʀᴀᴡ ɪɴ ᴍʏ ғʀᴇᴇ ᴛɪᴍᴇ
 
-DNI List
+DNI List ![image](https://user-images.githubusercontent.com/114703263/194954586-740065ba-0561-4d91-8322-f647498fb2f0.png)
+╚═══════════════════════════════════════════════════════════════════════════════════════╝
 
 ∿ sʜɪᴘ ᴋʏᴍᴀɴ
 
@@ -41,6 +43,7 @@ sʜɪᴘ ᴅʀᴇᴀᴍɴᴏᴛғᴏᴜɴᴅ
 
 
  ![image](https://user-images.githubusercontent.com/114703263/194949449-7cc58b15-8369-4921-b06c-5d3b26151812.png) Fandoms I'm in ![image](https://user-images.githubusercontent.com/114703263/194949463-8af2c47c-077d-4c57-933d-2a852af79acc.png)
+╚═══════════════════════════════════════════════════════════════════════════════════════╝
 
 ∿ ᴄᴏᴏᴋɪᴇ ʀᴜɴ ᴋɪɴɢᴅᴏᴍ
 
@@ -64,11 +67,12 @@ sʜɪᴘ ᴅʀᴇᴀᴍɴᴏᴛғᴏᴜɴᴅ
 
 ∿ sᴏᴜᴛʜ ᴘᴀʀᴋ
 
+![image](https://user-images.githubusercontent.com/114703263/194954619-3dc2b4aa-9fa9-4186-9934-296011f2a321.png)
 And more
-
+╚═══════════════════════════════════════════════════════════════════════════════════════╝
 
 
 ![image](https://user-images.githubusercontent.com/114703263/194950609-c58fb3d0-2043-4b51-ba19-e682287b2bcd.png)
 
 ![image](https://user-images.githubusercontent.com/114703263/194949449-7cc58b15-8369-4921-b06c-5d3b26151812.png) Feel free to interact with me if you're in any of the listed fandoms, as long as you don't meet any of the DNI criteria ![image](https://user-images.githubusercontent.com/114703263/194949463-8af2c47c-077d-4c57-933d-2a852af79acc.png)
-
+╚═══════════════════════════════════════════════════════════════════════════════════════╝
