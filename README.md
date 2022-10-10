@@ -1,4 +1,6 @@
-Read Before INT!
+![image](https://user-images.githubusercontent.com/114703263/194949449-7cc58b15-8369-4921-b06c-5d3b26151812.png)
+Read Before INT! ![image](https://user-images.githubusercontent.com/114703263/194949463-8af2c47c-077d-4c57-933d-2a852af79acc.png)
+
 
 【ᴍɪᴋᴇʏ/ʟᴇᴏ ʜᴇ/ʜɪᴍ】
 
@@ -6,14 +8,14 @@ Do not copy my style or take inspo pls :D
 
 ₊˚ ‿︵‿︵‿︵୨♡ৎ‿︵‿︵‿︵‿ ˚₊
 
-![image](https://user-images.githubusercontent.com/114703263/193553335-4d298e76-26af-4f4e-b04e-eb3e63da85a0.png)
+![image](https://user-images.githubusercontent.com/114703263/194950609-c58fb3d0-2043-4b51-ba19-e682287b2bcd.png)
 
 
 Hai there ɪ ᴀᴍ ᴀ ᴍɪɴᴏʀ ᴀɴᴅ ɪ ᴜsᴜᴀʟʟʏ ᴅʀᴀᴡ ɪɴ ᴍʏ ғʀᴇᴇ ᴛɪᴍᴇ
 
 DNI List
 
-∿ ᴅsᴍᴘ ғᴀɴ/ ᴇɴᴊᴏʏᴇʀ
+∿ 
 
 sʜɪᴘ ᴅʀᴇᴀᴍɴᴏᴛғᴏᴜɴᴅ
 
@@ -35,10 +37,10 @@ sʜɪᴘ ᴅʀᴇᴀᴍɴᴏᴛғᴏᴜɴᴅ
 
 ₊˚ ‿︵‿︵‿︵୨♡ৎ‿︵‿︵‿︵‿ ˚₊
 
-![s-l1600](https://user-images.githubusercontent.com/114703263/193552490-5f4a5453-60c8-429d-aaa5-4129ee14ad88.jpg)
+![image](https://user-images.githubusercontent.com/114703263/194950599-3895fd95-1b20-402a-9d61-2fb6c7d3d4a1.png)
 
 
-Fandoms I'm in
+ ![image](https://user-images.githubusercontent.com/114703263/194949449-7cc58b15-8369-4921-b06c-5d3b26151812.png) Fandoms I'm in ![image](https://user-images.githubusercontent.com/114703263/194949463-8af2c47c-077d-4c57-933d-2a852af79acc.png)
 
 ∿ ᴄᴏᴏᴋɪᴇ ʀᴜɴ ᴋɪɴɢᴅᴏᴍ
 
