@@ -64,5 +64,6 @@ sʜɪᴘ ᴅʀᴇᴀᴍɴᴏᴛғᴏᴜɴᴅ
 And more
 
 ₊˚ ‿︵‿︵‿︵୨♡ৎ‿︵‿︵‿︵‿ ˚₊
+![image](https://user-images.githubusercontent.com/114703263/194950609-c58fb3d0-2043-4b51-ba19-e682287b2bcd.png)
 
 Feel free to interact with me if you're in any of the listed fandoms, as long as you don't meet any of the DNI criteria
