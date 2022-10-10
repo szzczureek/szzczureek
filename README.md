@@ -74,7 +74,7 @@ And more
 
 ![image](https://user-images.githubusercontent.com/114703263/194950609-c58fb3d0-2043-4b51-ba19-e682287b2bcd.png)
 
-![image](https://user-images.githubusercontent.com/114703263/194949449-7cc58b15-8369-4921-b06c-5d3b26151812.png) Feel free to interact with me if you're in any of the listed fandoms, as long as you don't meet any of the DNI criteria .ᐟ[image](https://user-images.githubusercontent.com/114703263/194949463-8af2c47c-077d-4c57-933d-2a852af79acc.png)
+![image](https://user-images.githubusercontent.com/114703263/194949449-7cc58b15-8369-4921-b06c-5d3b26151812.png) Feel free to interact with me if you're in any of the listed fandoms, as long as you don't meet any of the DNI criteria .ᐟ ![image](https://user-images.githubusercontent.com/114703263/194949463-8af2c47c-077d-4c57-933d-2a852af79acc.png)
 ╚═══════════════════════════════════════════════════════════════════════════════════╝
 
 
