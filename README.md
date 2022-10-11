@@ -35,8 +35,7 @@ Read Before INT.ᐟ ![image](https://user-images.githubusercontent.com/114703263
 
 ᲼᲼᲼᲼᲼᲼᲼᲼᲼∿ ғᴜᴊᴏsʜɪs (ɪғ ʏᴏᴜ ʟɪᴋᴇ ғᴇᴛɪsʜɪᴢɪɴɢ ɢᴀʏ ᴘᴇᴏᴘʟᴇ, ᴅᴏ ɴᴏᴛ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ.ᐟ)
 
-᲼᲼᲼᲼᲼᲼᲼᲼᲼᲼᲼ɪғ ʏᴏᴜ sʜɪᴘ sɪʙʟɪɴɢs ʟɪᴋᴇ ᴅɪʟᴜᴄ x ᴋᴀᴇʏᴀ
-
+᲼᲼᲼᲼᲼᲼᲼᲼᲼᲼᲼
 
 
 ![image](https://user-images.githubusercontent.com/114703263/194950599-3895fd95-1b20-402a-9d61-2fb6c7d3d4a1.png)
