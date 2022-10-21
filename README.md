@@ -47,7 +47,8 @@ sᴛᴀʟᴋᴇʀs
 
 : 𝐈𝐫𝐥  🌸彡  
 
-ᴍɪᴄʜᴀᴇʟ ᴀғᴛᴏɴ (ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs)       ![cherry-blossom_1f338](https://user-images.githubusercontent.com/114703263/196934995-1981e835-7ab2-4fc2-82c0-d0e9a79e126d.png)
+ᴍɪᴄʜᴀᴇʟ ᴀғᴛᴏɴ (ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs)       ![batty](https://user-images.githubusercontent.com/114703263/197192039-a1384803-9d20-4cff-a4f2-6b54b4a6a270.png)
+
 
 ᴅᴀᴠᴇ ᴍɪʟʟᴇʀ (ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs)
 
@@ -76,7 +77,7 @@ sᴛᴀʟᴋᴇʀs
  : 𝐈𝐦𝐩𝐨𝐫𝐭𝐚𝐧𝐭 🌸彡 
 
  ![adasd](https://user-images.githubusercontent.com/114703263/196957695-a13ed7b9-7548-4e4a-bca5-dca725c26c5f.png) 
-𝐈𝐝𝐥𝐞: ᴜsᴜᴀʟʟʏ ᴏғғᴛᴀʙ/ᴀғᴋ       ![cherry-blossom_1f338](https://user-images.githubusercontent.com/114703263/196934995-1981e835-7ab2-4fc2-82c0-d0e9a79e126d.png)
+𝐈𝐝𝐥𝐞: ᴜsᴜᴀʟʟʏ ᴏғғᴛᴀʙ/ᴀғᴋ       ![batty](https://user-images.githubusercontent.com/114703263/197192039-a1384803-9d20-4cff-a4f2-6b54b4a6a270.png)
  
  ![fesfsgf](https://user-images.githubusercontent.com/114703263/196957723-5423453f-d450-45c7-8e22-e31aa5f15d84.png)
 𝐁𝐮𝐬𝐲: ᴍᴏsᴛ ʟɪᴋᴇʟʏ ᴡɪᴛʜ ғʀɪᴇɴᴅs 
@@ -108,7 +109,7 @@ sᴛᴀʟᴋᴇʀs
 
 : 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢'𝐦 𝐢𝐧 🌸彡 
 
-ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs        ![cherry-blossom_1f338](https://user-images.githubusercontent.com/114703263/196934995-1981e835-7ab2-4fc2-82c0-d0e9a79e126d.png)
+ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs        ![batty](https://user-images.githubusercontent.com/114703263/197192039-a1384803-9d20-4cff-a4f2-6b54b4a6a270.png)
 
 
 ᴇᴅᴅsᴡᴏʀʟᴅ
