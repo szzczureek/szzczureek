@@ -93,7 +93,7 @@ sᴛᴀʟᴋᴇʀs
 ![image](https://user-images.githubusercontent.com/114703263/197806007-88417c94-d8bb-437d-8d1c-b0cb52d12130.png)
 
 
-ミ★★: 𝕸𝖞 𝕱𝖗𝖎𝖊𝖓𝖉𝖘!
+ミ★: 𝕸𝖞 𝕱𝖗𝖎𝖊𝖓𝖉𝖘!
 
 ᴀxᴇʟ (ɪʀʟ)       ![image](https://user-images.githubusercontent.com/114703263/197813144-56b8ad88-2324-4093-a58d-08d2cbb4d374.png)
 
