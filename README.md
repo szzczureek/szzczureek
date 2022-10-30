@@ -2,7 +2,7 @@
 
 
 
-![image](https://user-images.githubusercontent.com/114703263/198547683-79293d71-c7e3-4a64-beac-cea8abc26c67.png)
+![image](https://user-images.githubusercontent.com/114703263/198890048-5ef0507d-482d-458c-a8d1-2deaa1e83008.png)
 
 
 : 𝐑𝐞𝐚𝐝 𝐁𝐞𝐟𝐨𝐫𝐞 𝐈𝐍𝐓 ★彡
@@ -14,11 +14,15 @@
  𝕴 𝖚𝖘𝖊 𝕳𝖊/𝕳𝖎𝖒 𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘 𝖞𝖔𝖚 𝖈𝖆𝖓 𝖈𝖆𝖑𝖑 𝖒𝖊 𝕸𝖆𝖝𝖜𝖊𝖑𝖑 𝖔𝖗 𝕰𝖛𝖆𝖓 
 
  sʟᴇᴇᴘɪɴɢ= ᴀғᴋ (ʜᴏᴍᴇᴡᴏʀᴋ, ᴘʟᴀʏɪɴɢ ɢᴀᴍᴇs ᴇᴛᴄ) ★彡
-![image](https://user-images.githubusercontent.com/114703263/198550403-500b191e-985d-4a44-b23e-73817149a796.png)
+
+![image](https://user-images.githubusercontent.com/114703263/198890320-0f5c750f-ab67-4610-aeb1-9d399e3289ca.png)
+
+
 
 ミ★: 𝕯𝕹𝕴 𝕷𝖎𝖘𝖙
 
-sʜɪᴘ ᴋʏᴍᴀɴ       ![ezgif com-gif-maker (1)](https://user-images.githubusercontent.com/114703263/198555458-487fbfe0-9039-49e3-bd1f-3ed4e8de79f9.gif)
+sʜɪᴘ ᴋʏᴍᴀɴ       ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
+
 
 sʜɪᴘ ᴅʀᴇᴀᴍɴᴏᴛғᴏᴜɴᴅ
 
@@ -43,11 +47,11 @@ sᴛᴀʟᴋᴇʀs
 
 ғᴜᴊᴏsʜɪs (ɪғ ʏᴏᴜ ʟɪᴋᴇ ғᴇᴛɪsʜɪᴢɪɴɢ ɢᴀʏ ᴘᴇᴏᴘʟᴇ, ᴅᴏ ɴᴏᴛ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ!)
 
-![image](https://user-images.githubusercontent.com/114703263/198550446-3e75c052-ca9d-458c-9771-8af5d943c14a.png)
+![image](https://user-images.githubusercontent.com/114703263/198890244-f1dd3ef3-4c5f-43c2-a569-10a0b2ac707f.png)
 
 : 𝐈𝐫𝐥  ★彡  
 
-ᴇᴠᴀɴ ᴀғᴛᴏɴ (ғɪᴠᴇ ɴɪɢʜᴛs ᴀᴛ ғʀᴇᴅᴅʏ's)       ![ezgif com-gif-maker (2)](https://user-images.githubusercontent.com/114703263/198555541-2cd984d1-cd26-44b4-b0b8-83dbbeb5cdc5.gif)
+ᴇᴠᴀɴ ᴀғᴛᴏɴ (ғɪᴠᴇ ɴɪɢʜᴛs ᴀᴛ ғʀᴇᴅᴅʏ's)       ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
 
 ᴅᴀᴠᴇ ᴍɪʟʟᴇʀ (ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs)
 
@@ -58,12 +62,12 @@ sᴛᴀʟᴋᴇʀs
 ᴀxᴇʟ (ʏᴏᴜʀғᴀᴠᴏʀɪᴛᴇᴍᴀʀᴛɪᴀɴ)
 
 
-![image](https://user-images.githubusercontent.com/114703263/198550500-6bc99fe5-202a-422f-b906-78b2aafb7de1.png)
+![image](https://user-images.githubusercontent.com/114703263/198890401-730c61fd-d802-47e8-a193-796982ea8c2f.png)
 
 
 ミ★: 𝕱𝖆𝖛𝖔𝖚𝖗𝖎𝖙𝖊 𝖈𝖍𝖆𝖗𝖆𝖈𝖙𝖊𝖗𝖘
 
-𝐁𝐥𝐮𝐞𝐲 𝐂𝐚𝐩𝐬𝐮𝐥𝐞𝐬: ᴅᴀᴠᴇ, ᴍɪᴄʜᴀᴇʟ, ᴊᴇʀᴇᴍʏ, ᴠɪɴᴄᴇɴᴛ, ᴘʜɪʟɪᴘ       ![ezgif com-gif-maker (3)](https://user-images.githubusercontent.com/114703263/198555620-37e0afc3-ef70-487a-ab19-839a06747afa.gif)
+𝐁𝐥𝐮𝐞𝐲 𝐂𝐚𝐩𝐬𝐮𝐥𝐞𝐬: ᴅᴀᴠᴇ, ᴍɪᴄʜᴀᴇʟ, ᴊᴇʀᴇᴍʏ, ᴠɪɴᴄᴇɴᴛ, ᴘʜɪʟɪᴘ       ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
 
 𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡: ʟᴜᴄɪᴏ, ɢᴇɴᴊɪ, ʀᴇᴀᴘᴇʀ, ʜᴀɴᴢᴏ, ᴍᴄᴄʀᴇᴇ, ᴊᴜɴᴋʀᴀᴛ, ᴢᴇɴʏᴀᴛᴀ
 
@@ -77,13 +81,13 @@ sᴛᴀʟᴋᴇʀs
 
 𝐎𝐭𝐡𝐞𝐫: ᴋᴀɪ ᴀɴᴅᴇʀsᴏɴ, ᴊᴇғғʀᴇʏ ᴅᴀʜᴍᴇʀ, ᴊᴜɢʜᴇᴀᴅ ᴊᴏɴᴇs, ᴋᴜʀᴛ ᴋᴜɴᴋʟᴇ, ᴀɴᴅʀᴇᴡ ᴄᴜɴᴀɴᴀɴ
 
- ![image](https://user-images.githubusercontent.com/114703263/198550792-c7e3e734-b172-498e-a32d-ca02fd07084e.png)
+ ![image](https://user-images.githubusercontent.com/114703263/198890458-9578433f-dcf9-4010-af48-e720fbb4ea84.png)
 
  
  : 𝐈𝐦𝐩𝐨𝐫𝐭𝐚𝐧𝐭 ★彡 
 
  ![adasd](https://user-images.githubusercontent.com/114703263/196957695-a13ed7b9-7548-4e4a-bca5-dca725c26c5f.png) 
-𝐈𝐝𝐥𝐞: ᴜsᴜᴀʟʟʏ ᴏғғᴛᴀʙ/ᴀғᴋ       ![ezgif com-gif-maker (4)](https://user-images.githubusercontent.com/114703263/198555661-4949c085-39c6-4d7b-96fd-be280d7b26f9.gif)
+𝐈𝐝𝐥𝐞: ᴜsᴜᴀʟʟʏ ᴏғғᴛᴀʙ/ᴀғᴋ       ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
 
  
  ![fesfsgf](https://user-images.githubusercontent.com/114703263/196957723-5423453f-d450-45c7-8e22-e31aa5f15d84.png)
@@ -92,12 +96,12 @@ sᴛᴀʟᴋᴇʀs
 ![online](https://user-images.githubusercontent.com/114703263/196957742-0977270e-386b-45f0-8fe1-fa8f1436c6d5.png)
  𝐎𝐧𝐥𝐢𝐧𝐞: ғᴇᴇʟ ғʀᴇᴇ ᴛᴏ ɪɴᴛ
 
-![image](https://user-images.githubusercontent.com/114703263/198552851-f39d2d29-6ae1-4e93-9b9d-89add0221dd3.png)
+![image](https://user-images.githubusercontent.com/114703263/198890566-c486e5b3-b5af-4aa4-af24-5d731320ac76.png)
 
 
 ミ★: 𝕸𝖞 𝕱𝖗𝖎𝖊𝖓𝖉𝖘!
 
-ᴀxᴇʟ (ɪʀʟ)       ![ezgif com-gif-maker (5)](https://user-images.githubusercontent.com/114703263/198555732-159ee699-af63-4334-a1f7-8031e130c091.gif)
+ᴀxᴇʟ (ɪʀʟ)       ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
 
 
 ᴍɪᴄʜᴀᴇʟ (ɪʀʟ)
@@ -113,11 +117,11 @@ sᴛᴀʟᴋᴇʀs
 
 
 
-![image](https://user-images.githubusercontent.com/114703263/198553314-99aa03f9-1a65-4174-9192-cd90199cc9c8.png)
+![image](https://user-images.githubusercontent.com/114703263/198890573-8b415ccd-b3fd-4202-b425-a461b5f3da9d.png)
 
 : 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢'𝐦 𝐢𝐧 ★彡 
 
-ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs        ![ezgif com-gif-maker (6)](https://user-images.githubusercontent.com/114703263/198555767-e333964c-1ed0-4c8b-82a4-975470d23341.gif)
+ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs        ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
 
 
 
@@ -159,11 +163,11 @@ sᴏᴜᴛʜ ᴘᴀʀᴋ
 ᴊᴊʙᴀ
 
 
-![image](https://user-images.githubusercontent.com/114703263/198553900-36294bfa-f663-4ecf-bfb3-6e9904addb34.png)
+![image](https://user-images.githubusercontent.com/114703263/198890580-23943de5-8d05-4b7b-a2d5-c777faf2cc71.png)
 
 
 
 
 
 : 𝐅𝐞𝐞𝐥 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭 𝐰𝐢𝐭𝐡 𝐦𝐞 𝐢𝐟 𝐲𝐨𝐮'𝐫𝐞 𝐢𝐧 𝐚𝐧𝐲 𝐨𝐟 𝐭𝐡𝐞 𝐥𝐢𝐬𝐭𝐞𝐝 𝐟𝐚𝐧𝐝𝐨𝐦𝐬, 𝐚𝐬 𝐥𝐨𝐧𝐠 𝐚𝐬 𝐲𝐨𝐮 𝐝𝐨𝐧'𝐭 𝐦𝐞𝐞𝐭 𝐚𝐧𝐲 𝐨𝐟 𝐭𝐡𝐞 𝐃𝐍𝐈 𝐜𝐫𝐢𝐭𝐞𝐫𝐢𝐚! ★彡
-![image](https://user-images.githubusercontent.com/114703263/198548016-7e83eb99-9c7a-425c-92d7-fcc1199910e6.png)
+![image](https://user-images.githubusercontent.com/114703263/198890054-a686c59f-e428-4d42-b34f-32c831fde4b5.png)
