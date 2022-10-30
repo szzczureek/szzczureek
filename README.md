@@ -51,7 +51,7 @@ sᴛᴀʟᴋᴇʀs
 
 : 𝐈𝐫𝐥  ★彡  
 
-ᴇᴠᴀɴ ᴀғᴛᴏɴ (ғɪᴠᴇ ɴɪɢʜᴛs ᴀᴛ ғʀᴇᴅᴅʏ's)       ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
+ᴇᴠᴀɴ ᴀғᴛᴏɴ (ғɪᴠᴇ ɴɪɢʜᴛs ᴀᴛ ғʀᴇᴅᴅʏ's)       ![image](https://user-images.githubusercontent.com/114703263/198890820-aac03aca-1f54-47f6-a806-5f580525fb73.png)
 
 ᴅᴀᴠᴇ ᴍɪʟʟᴇʀ (ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs)
 
@@ -87,7 +87,7 @@ sᴛᴀʟᴋᴇʀs
  : 𝐈𝐦𝐩𝐨𝐫𝐭𝐚𝐧𝐭 ★彡 
 
  ![adasd](https://user-images.githubusercontent.com/114703263/196957695-a13ed7b9-7548-4e4a-bca5-dca725c26c5f.png) 
-𝐈𝐝𝐥𝐞: ᴜsᴜᴀʟʟʏ ᴏғғᴛᴀʙ/ᴀғᴋ       ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
+𝐈𝐝𝐥𝐞: ᴜsᴜᴀʟʟʏ ᴏғғᴛᴀʙ/ᴀғᴋ       ![image](https://user-images.githubusercontent.com/114703263/198890845-40acad74-c92b-47f2-a231-d906fa7c2707.png)
 
  
  ![fesfsgf](https://user-images.githubusercontent.com/114703263/196957723-5423453f-d450-45c7-8e22-e31aa5f15d84.png)
@@ -121,7 +121,7 @@ sᴛᴀʟᴋᴇʀs
 
 : 𝐅𝐚𝐧𝐝𝐨𝐦𝐬 𝐢'𝐦 𝐢𝐧 ★彡 
 
-ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs        ![dcf1n1z-72731dc6-5119-4901-89e7-5fc142220eda](https://user-images.githubusercontent.com/114703263/198890671-728ac3bf-865f-498a-83c1-d59d64f626b9.gif)
+ʙʟᴜᴇʏ ᴄᴀᴘsᴜʟᴇs        ![image](https://user-images.githubusercontent.com/114703263/198890867-c5644087-fb6e-4574-9424-c4431f045259.png)
 
 
 
